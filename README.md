@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @elizabethita12
-- 👀 I’m interested in traveling and finding new friends all arounf the world
+- 👀 I’m interested in traveling and finding new friends all around the world
 - 🌱 I’m currently learning JavaScript
 - 💞️ I’m looking to collaborate on new proyects 
 - 📫 How to reach me, please contact me on facebook.com/elizabeth.ita.92
